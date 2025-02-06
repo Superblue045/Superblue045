@@ -29,7 +29,7 @@ I'm Web & Mobile App Developer. I work as a software engineer during the day. At
 - 👯 I’m looking to collaborate on a long-term project.
 - 🤔 I’m looking for help with new job opportunity.
 - 💬 Ask me about anything you need.
-- 📫 How to reach me: blue.moun045@gmail.com, live:.cid.9afebbd1559b7552.
+- 📫 How to reach me: william.mscpro@gmail.com, live:.cid.9afebbd1559b7552.
 - 💼 I'm open to freelancing projects.
 - 🤟🏻 I'm an astrophysics geek, amatuer swimmer, and football lover. I also write pieces of poetry, blogs, and play badminton!
 - 😝 Fun-Fact: I suffer from [hylophobia](https://phobia.wikia.org/wiki/Hylophobia).
